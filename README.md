@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m Argh!<br>💻 I’ve 5+ years of experience in building digital solutions <br>👀 Looking to collaborate on new ideas
+👋 Hi, I’m Argh!<br>💻 I’ve 6+ years of experience in building digital solutions <br>👀 Looking to collaborate on new ideas
 
 
 ## 🌐 Socials:
